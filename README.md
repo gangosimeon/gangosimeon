@@ -1,1 +1,1 @@
-### Bonjour à tous 🤝! Je m'appelle  Gango.
+### Salut tout le monde🤝! Je m'appelle Gango Siméon.
